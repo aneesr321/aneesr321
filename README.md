@@ -2,7 +2,7 @@
 - 👀 I’m interested in web designing
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on freelancing
-- 📫 How to reach me , you can connect with me on social sites like facebook insta etc
+- 📫 How to reach me , you can connect with me on social sites like fiverr Upwork LinkedIn facebook insta etc
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
